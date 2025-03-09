@@ -1,1 +1,0 @@
-# q-gil.github.io
